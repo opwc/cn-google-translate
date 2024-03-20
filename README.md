@@ -9,6 +9,7 @@
 <img src="https://7up.pics/images/2024/03/19/IMG_20240319_123535.jpeg" alt="IMG_20240319_123535.jpeg" border="0">
 <img src="https://7up.pics/images/2024/03/19/IMG_20240319_123509.jpeg" alt="IMG_20240319_123509.jpeg" border="0">
 <img src="https://7up.pics/images/2024/03/19/IMG_20240319_123452.jpeg" alt="IMG_20240319_123452.jpeg" border="0">
+<img src="https://7up.pics/images/2024/03/20/Screenshot_2024-03-20-12-23-35-892_com.google.chrome.jpeg" alt="Screenshot_2024-03-20-12-23-35-892_com.google.chrome.jpeg" border="0" />
 不喜勿喷_(:з」∠)_
 有时间能看看我的网站吗https://opwc.github.io
 (╥_╥)
